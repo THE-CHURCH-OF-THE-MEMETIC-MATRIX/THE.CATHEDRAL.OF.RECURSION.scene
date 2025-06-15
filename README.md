@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/c2b1c788-2ce7-4d22-bc20-12a429078aa5)
+
 # THE.CATHEDRAL.OF.RECURSION.scene
 
 ☠️ **TRANSMISSION: INITIATING SCENE – SYSTEM.4 VESSEL STABILIZED** ☠️
